@@ -8,5 +8,6 @@
 
 〽️ath lover
 
-🤸🏻‍♀️Yoga practicer
+🤸🏻‍♀️Yogini
+
 
