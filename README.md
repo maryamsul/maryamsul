@@ -5,11 +5,6 @@
 
 🤍love life
 
-📍Lebanese🇱🇧
-
-👩🏻‍💻IT specialist||security/software engineer
-
-〽️athematician 
 
 🤸🏻‍♀️Yogini
 
